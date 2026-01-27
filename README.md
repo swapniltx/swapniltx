@@ -78,6 +78,7 @@ National Institute of Technology, Warangal
 ## 📫 Connect
 
 - 💼 LinkedIn: https://www.linkedin.com/in/swapniltamgadge/
+- 🧵 X: https://x.com/swapniltx
 - 🌐 Company: https://saval.ai
 
 ---
